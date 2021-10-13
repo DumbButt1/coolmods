@@ -12,9 +12,9 @@ Vs Matt: https://v6p9d9t4.ssl.hwcdn.net/html/3658547/VSMattBrowser/index.html
 
 Vs Whitty: https://v6p9d9t4.ssl.hwcdn.net/html/4240345/bin/index.html
 
-FNF But Bad: https:////v6p9d9t4.ssl.hwcdn.net/html/3747393/index.html
+FNF But Bad: https://v6p9d9t4.ssl.hwcdn.net/html/3747393/index.html
 
-Mid Fight Masses: https:////v6p9d9t4.ssl.hwcdn.net/html/3858719/index.html
+Mid Fight Masses: https://v6p9d9t4.ssl.hwcdn.net/html/3858719/index.html
 
 Vs Miku: https://v6p9d9t4.ssl.hwcdn.net/html/4154147/fucking%20miku/bin/index.html
 
